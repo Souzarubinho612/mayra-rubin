@@ -1,4 +1,4 @@
 # mayra-rubin
 
-![image](https://user-images.githubusercontent.com/53626405/163656772-bf681687-14ff-421d-922d-c8b724032f70.png)
+![image](https://user-images.githubusercontent.com/53626405/163656794-1438ffd5-0f0f-479a-a951-181db3292d07.png)
 
